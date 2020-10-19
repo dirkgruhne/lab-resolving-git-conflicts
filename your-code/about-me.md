@@ -25,3 +25,4 @@ IT, Marketing, Finances
 Combining tech background with sales/ presentation role
 * What is your career goal?
 Gaining 3% of the CiU´s Palau income ;)
+
